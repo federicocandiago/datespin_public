@@ -10,7 +10,7 @@ respective privacy policies.
 Your continued use of my app will be regarded as acceptance of my practices around privacy and personal information. 
 If you have any questions about how I handle user data and personal information, feel free to contact me.
 
-This policy is effective as of 22 April 2020
+This policy is effective as of 29 May 2020
 
 ## LEGAL NOTICE
 
